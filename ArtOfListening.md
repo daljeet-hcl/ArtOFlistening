@@ -2,7 +2,6 @@
 
 
 ## Favourite Quotes
-   ===============
 
 
 “Communication done correctly, is life lived correctly”
@@ -17,7 +16,6 @@
 “At no in moment in One’s life, A person can live without Communication, He is either communicating with others or He is communicating with his own self.”
 
 ## Dedication
-   ===========
 
 
 This work is dedicated to all my colleagues, friends  and Family members  who taught me the important lessons of Life. The challenges faced in professional life.
@@ -37,11 +35,15 @@ This writing is still not organized, please do not mind its inconsistency, it is
 
 
 Regards
+
 Daljeet Singh
+
 +91 9910069813
 
 Facebook: http://facebook.com/daljeet.singh123
+
 Twitter : https://twitter.com/daljeet123
+
 Email: daljeet.singh123@gmail.com 
 
 
@@ -49,7 +51,6 @@ Email: daljeet.singh123@gmail.com
 
 
 ### The Art of Listening 
-====================
 
 
 Scientific method has 8 important steps (quote from wikipedia )
@@ -70,8 +71,7 @@ The second is most important, it means to observer, to Observe is to listen, to 
 Hypothesis will keep on changing and improving either by us or by others based on their observation. They may or may not use our hypothesis for the initial start. Our hypothesis or theories will become wrong tomorrow, they will be improved on and will become the thing of past.
 What will remain appreciable is our attitude of Observation and Listening. 
 
-Observation becomes Science 
-===========================
+### Observation becomes Science 
 
 When we observe plants, it becomes botany, when we observe animals and their behaviour it becomes Zoology. 
 Listening is imperative to Science, If we can listen better we can become better at doing science.
@@ -90,8 +90,7 @@ The only goal is increase my listening potential , my potential for observation.
 
 Because to Listen is to Understand. And to Understand and to be understood is a deep grained human need.
  
-Two important steps of scientific method
-========================================
+### Two important steps of scientific method
 
 1. To observe
 2. To create hypothesis
@@ -100,10 +99,8 @@ For me To observe is to listen , and to create hypothesis is to speak, and both 
 All logic is hypothesis, to create logic is to hypothesise. To hypothesise is to communicate,  to unclutter. To unclutter the self. And help unclutter others if I can .  ( “perhaps by listening to them”.)
 
 ## Chapter 2
-=========	
 
-Communication from the Soul
----------------------------
+### Communication from the Soul
 
 
 Mathematics or logic is a language.
@@ -121,15 +118,13 @@ And since the building blocks of logic is words, a tool for communication, Can w
 
 
 ## Chapter 3
---------------
 
 “Not only we communicate with others But also to our own self. When we think we are actually communicating with ourselves.”
 
 
-Communication is a bliss
-=================
+### Communication is a bliss
 
 
-When we communicate correctly with our inside we are at bliss, when we are not able to do that we feel miserable! 
+When we communicate correctly with our inside we are at bliss, when we are not able to do that we feel miserable!
 
 
