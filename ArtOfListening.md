@@ -127,4 +127,10 @@ And since the building blocks of logic is words, a tool for communication, Can w
 
 When we communicate correctly with our inside we are at bliss, when we are not able to do that we feel miserable!
 
+## Chapter 4
+### Happiness and Creativity
+
+## Chapter 5
+### Creativity and Compassion
+
 
